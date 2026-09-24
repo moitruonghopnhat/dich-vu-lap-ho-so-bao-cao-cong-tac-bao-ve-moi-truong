@@ -220,7 +220,7 @@ Việc chuẩn bị hồ sơ đầy đủ và đúng thời hạn cũng giúp do
 
 ## Liên hệ tư vấn
 
-> Quý Doanh nghiệp có nhu cầu sử dụng **dịch vụ lập hồ sơ Báo cáo công tác bảo vệ môi trường**, vui lòng liên hệ **Hotline: 0938.857.768** hoặc [gửi thông tin tại trang dịch vụ](https://moitruonghopnhat.com/dich-vu-lap-ho-so-bao-cao-cong-tac-bao-ve-moi-truong/) để Hợp Nhất kiểm tra hồ sơ, xác định phạm vi công việc và tư vấn phương án thực hiện phù hợp.
+> Quý Doanh nghiệp có nhu cầu sử dụng **dịch vụ lập hồ sơ Báo cáo công tác bảo vệ môi trường**, vui lòng liên hệ **Hotline: 0938.857.768** để Hợp Nhất kiểm tra hồ sơ, xác định phạm vi công việc và tư vấn phương án thực hiện phù hợp.
 
 ### Dịch vụ liên quan
 

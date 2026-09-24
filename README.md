@@ -2,7 +2,6 @@
 
 > **Hợp Nhất hỗ trợ doanh nghiệp hệ thống hóa dữ liệu môi trường, rà soát tính phù hợp của hồ sơ và hoàn thiện Báo cáo công tác bảo vệ môi trường theo quy định hiện hành.** Qua đó, doanh nghiệp có thể chủ động hơn trong việc thực hiện nghĩa vụ môi trường định kỳ và hạn chế sai sót trong quá trình lập hồ sơ.
 
-[**Tìm hiểu dịch vụ trên website**](https://moitruonghopnhat.com/dich-vu-lap-ho-so-bao-cao-cong-tac-bao-ve-moi-truong/) · **Hotline: 0938.857.768**
 
 ![Dịch vụ lập hồ sơ báo cáo công tác bảo vệ môi trường](https://moitruonghopnhat.com/uploads/images/Dich-vu/dich-vu-lap-ho-so-bao-cao-cong-tac-bao-ve-moi-truong.jpg)
 
